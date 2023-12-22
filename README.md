@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **benedicto.joshuab@gmail.com**
 
+- 🌱 My Portfolio [Joshua benedicto](https://noodlesyrup.github.io/JoshuaBenedicto-Portfolio/)
+
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1DhT8W3snpF3oN45rXayE4QfWr3Uh0hlB?usp=drive_link](https://drive.google.com/drive/folders/1DhT8W3snpF3oN45rXayE4QfWr3Uh0hlB?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
